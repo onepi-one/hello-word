@@ -7,4 +7,4 @@ a really beginner
 
 now i am anxious about myself 
 
-maybe i should be delicated
+maybe I should be delicated
